@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+Web designer consuming all things web and tech. Husband/dad with a love of coffee, food and anyone's positive enthusiasm.  Managing brain plasticity through mindfulness and exercise.  Not keen on the sand.
+
 <!--
 **ebcomley/ebcomley** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
